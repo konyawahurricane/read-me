@@ -5,6 +5,9 @@ i am a big sucker for online projects and older media :) I am a big big fan of r
 
 my favorite games would be the stalker serious, fallout, skyrim, postal series, hatred, and hotline miami!
 
+![garden-of-eden](https://github.com/user-attachments/assets/c5b00e8a-98cf-490e-bded-f207825bb803)
+
+
 read my rentry for more info :-)
 
 ![giphy](https://github.com/user-attachments/assets/c203bb1c-5470-41de-9213-32cc851185e8)
