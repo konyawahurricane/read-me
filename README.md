@@ -11,7 +11,10 @@ read my rentry for more info :-)
 
 if you're here, you probably saw me on pt.. then hello!!! these are my main ponies :) 
 
-![pony-town-sign my petition_-trot-blinking-padded-85x (1)](https://github.com/user-attachments/assets/4f50627a-e930-478e-8997-aeb07ae508bb) ![pony-town-highly illogical! - sys-trot-blinking-padded-8x](https://github.com/user-attachments/assets/13316857-5dd7-4810-8139-3811c5026448)
-![pony-town-we're not gonna take it! - mf-trot-blinking-padded-8x](https://github.com/user-attachments/assets/fcb472cb-9bb2-475f-a193-91245ee752c2)
+![pony-town-sign my petition_-trot-blinking-fixed-padded-3x](https://github.com/user-attachments/assets/37f91a38-5d42-443f-8430-896aac67bf20)
+![pony-town-sylia stingray-trot-blinking-fixed-padded-3x](https://github.com/user-attachments/assets/aa47fe1c-0339-4ff6-9f43-29082a9bb27c)
+![pony-town-afk -- drawing_off tab-trot-blinking-fixed-padded-3x](https://github.com/user-attachments/assets/1d16e96e-9a42-4531-9387-ebd29eabbafa)
+![pony-town-highly illogical! - sys-trot-blinking-fixed-padded-3x](https://github.com/user-attachments/assets/0d93d81a-b559-4ef9-9f7a-acce5b6ea922)
 
+i usually sit by the valve/tf2 area or carrot farm. dont be scared to say hi :)
 
